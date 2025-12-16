@@ -1,4 +1,4 @@
-# 💫 About Me:
+# About Me:
 Data Analyst | Freelancer | Ex-Navodayan
 
 
